@@ -80,6 +80,6 @@ Tapi karena kekuatan satu ide
 <br>
 
 
-> **Untukmu yang mencintai kehidupan, 03 Agustus 2025**
+> **Untukmu yang mencintai masa depan, 03 Agustus 2025**
 > 
 > **by: [ceviherdianinsight.github.io](https://ceviherdianinsight.github.io)**
