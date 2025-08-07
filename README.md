@@ -1,0 +1,1 @@
+# Cerita-Tentang-Sebuah-Gagasan-dan-Dunia-yang-Tiba-tiba-Bergeser
